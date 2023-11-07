@@ -44,6 +44,15 @@ PR welcome
 
 ---
 
+<img width="298" alt="image" src="https://github.com/troll-busters/himself65-way/assets/143391866/f6a5ab78-ed0b-48cc-8c5a-46dab7154f03">
+
+> 和他认识的人哪个最后没绝交？
+
+- https://twitter.com/himself_65/status/1718591440337457261
+- https://web.archive.org/web/20231107144827/https://twitter.com/himself_65/status/1718591440337457261
+
+---
+
 <img width="308" alt="image" src="https://github.com/troll-busters/himself65-way/assets/143391866/e9e9c2ee-d3a8-4f29-9cf9-42736fcfdd33">
 
 > 我要从AFFiNE离职了
