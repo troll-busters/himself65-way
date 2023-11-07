@@ -4,6 +4,48 @@ PR welcome
 
 ## 技术篇
 
+### 大侦探福尔摩包
+
+<img height="400" alt="image" src="https://github.com/troll-busters/himself65-way/assets/143391866/8bd972b3-3e0b-448e-88c7-ef5355ed4c36">
+<img height="400" alt="image" src="https://github.com/troll-busters/himself65-way/assets/143391866/4afe7ac2-b7f4-4523-a613-9b756834bb32">
+
+> （节选）
+> 
+> 🍞：啊 <br>
+> 🍞：保底是这个人开的项目 <br>
+> 🍞：`https://x.com/<hidden>` <br>
+> 🍞：我可以压一顿肯德基😡 <br>
+> 🍞：太简单了吧 看他发什么内容 然后根据活跃时间 关联一下 <br>
+> 🍞：首先bread-way肯定是名字模仿vue-way，所以一定是前端的人 <br>
+> 🍞：其次他的第一个commit一定是他觉得不爽的内容 <br>
+> 🍞：我搞这种事情都是错开活跃时间，错开地理位置，还故意说假话。😡 <br>
+> 🍞：正如repo里所说，被野鸡大学毒害 <br>
+> 🍞：如果能重来，我应该两年前去微软实习，而不是去各种startup😡然后最后被贴到GitHub上的是骂去过的startup <br>
+> 群友：系统语言也对不上，TG壁纸也对不上 <br>
+> 群友：快点请群友吃肯德基吧 <br>
+> 🍞：（回复）肯定能对上 <br>
+> 🍞：截图是夜间主题 <br>
+> 🍞：然后一部分是网页暗色截图 <br>
+> 🍞：是Mac系统的 <br>
+> 🍞：那个tg截图很可能是旧的别人传的 <br>
+> 🍞：另外，这里面专门挂了affine <br>
+> 🍞：所以肯定也是和affine有点恩怨 <br>
+> 🍞：筛下来好像也没几个人了 <br>
+> 被怀疑：真以为你是福尔摩斯了？分析得这么有道理我都信了... <br>
+> 🍞：你是本人吗 <br>
+> 🍞：难道不是吗😭 <br>
+> 🍞：对不起我错了 <br>
+> 🍞：错了，哥！ <br>
+> 🍞：饶了我 <br>
+> 🍞：给你吃肯德基 <br>
+> 被怀疑：以后拿到实锤再喷人啊哥 <br>
+> 🍞：给大家发400支付宝红包吧 <br>
+> 🍞：\[支付宝口令红包\] <br>
+
+为保护隐私，已隐去非相关人的信息
+
+---
+
 <img width="589" alt="image" src="https://github.com/troll-busters/himself65-way/assets/143391866/418675a1-626a-45d3-8e66-7d7b76127886">
 
 > 发现一个有意思的项目，作者应该加上CI/CD，不然在中国晚上睡觉错过我发的推特怎么办，顺便提了一个issue
@@ -11,7 +53,7 @@ PR welcome
 - https://twitter.com/himself_65/status/1721878182020649075
 - https://web.archive.org/web/20231107141918/https://twitter.com/himself_65/status/1721878182020649075
 
----
+### 简中粪坑论
 
 <img width="585" alt="image" src="https://github.com/troll-busters/himself65-way/assets/143391866/f0dbd4bb-86dc-4009-a8a3-afbc0ca330ca">
 
@@ -21,7 +63,7 @@ PR welcome
 
 - ~~https://twitter.com/himself_65/status/1721842196029091955~~ (deleted)
 
----
+### 有班上了
 
 <img width="592" alt="image" src="https://github.com/troll-busters/himself65-way/assets/143391866/2dcec8db-3886-4b89-b4ff-9871a5e8215a">
 
@@ -31,7 +73,7 @@ PR welcome
 - https://twitter.com/himself_65/status/1721835637941162390
 - https://web.archive.org/web/20231107111953/https://twitter.com/himself_65/status/1721835637941162390
 
----
+### verbal mockery（嘲讽）
 
 <img height="400" alt="image" src="https://github.com/troll-busters/himself65-way/assets/143391866/8f955074-c05f-4118-8d7c-65680a079e5e">
 
@@ -51,7 +93,7 @@ PR welcome
 - https://twitter.com/himself_65/status/1718591440337457261
 - https://web.archive.org/web/20231107144827/https://twitter.com/himself_65/status/1718591440337457261
 
----
+### 我要从AFFiNE离职了
 
 <img width="308" alt="image" src="https://github.com/troll-busters/himself65-way/assets/143391866/e9e9c2ee-d3a8-4f29-9cf9-42736fcfdd33">
 
@@ -103,3 +145,5 @@ PR welcome
 
 - https://twitter.com/himself_65/status/1654669861069418496
 - https://web.archive.org/save/https://twitter.com/himself_65/status/1654669861069418496
+
+（由面包本人投稿）
