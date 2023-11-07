@@ -70,21 +70,30 @@ PR welcome
 
 ---
 
-<img width="304" alt="image" src="https://github.com/troll-busters/himself65-way/assets/143391866/12935b15-e3c6-4ed0-b1c5-359d7e29828c">
-
-> 你英语比我好 什么时候嘴对嘴教我
-
-- https://twitter.com/himself_65/status/1716761590018580790
-- https://web.archive.org/web/20231107111401/https://twitter.com/himself_65/status/1716761590018580790
-
----
-
 <img width="384" alt="image" src="https://github.com/troll-busters/himself65-way/assets/143391866/146a5d7d-465c-4903-bb17-853716dfc27b">
 
 > 突然觉得叉叉说话声音越来越甜了，好听
 
 - https://twitter.com/himself_65/status/1718930076614463781
 - https://web.archive.org/web/20231107110809/https://twitter.com/himself_65/status/1718930076614463781
+
+---
+
+<img width="275" alt="image" src="https://github.com/troll-busters/himself65-way/assets/143391866/6bfc3519-3dab-4a7d-90ec-0405ddd8cf03">
+
+> 叉叉已经开始在推特找假想敌了
+
+- https://twitter.com/himself_65/status/1717800855355658525
+- https://web.archive.org/web/20231107145746/https://twitter.com/himself_65/status/1717800855355658525
+
+---
+
+<img width="304" alt="image" src="https://github.com/troll-busters/himself65-way/assets/143391866/12935b15-e3c6-4ed0-b1c5-359d7e29828c">
+
+> 你英语比我好 什么时候嘴对嘴教我
+
+- https://twitter.com/himself_65/status/1716761590018580790
+- https://web.archive.org/web/20231107111401/https://twitter.com/himself_65/status/1716761590018580790
 
 ## 麦当劳篇
 
