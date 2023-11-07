@@ -2,6 +2,14 @@
 
 PR welcome
 
+## 肯德基篇
+
+<img width="555"  alt="image" src="https://github.com/troll-busters/himself65-way/assets/14026360/9e627f21-3b4f-4736-a94c-e797d0b25b40">
+
+> 肯德基居然这么好吃😇
+
+- https://twitter.com/himself_65/status/1705678284116095041
+
 ## 技术篇
 
 <img width="585" alt="image" src="https://github.com/troll-busters/himself65-way/assets/143391866/f0dbd4bb-86dc-4009-a8a3-afbc0ca330ca">
