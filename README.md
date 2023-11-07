@@ -12,6 +12,8 @@ PR welcome
 
 - ~~https://twitter.com/himself_65/status/1721842196029091955~~ (deleted)
 
+---
+
 <img width="592" alt="image" src="https://github.com/troll-busters/himself65-way/assets/143391866/2dcec8db-3886-4b89-b4ff-9871a5e8215a">
 
 > 大环境找工作好难，不过好像还是有班上了🤗
@@ -19,6 +21,25 @@ PR welcome
 
 - https://twitter.com/himself_65/status/1721835637941162390
 - https://web.archive.org/web/20231107111953/https://twitter.com/himself_65/status/1721835637941162390
+
+---
+
+<img height="400" alt="image" src="https://github.com/troll-busters/himself65-way/assets/143391866/8f955074-c05f-4118-8d7c-65680a079e5e">
+
+<img height="400" alt="image" src="https://github.com/troll-busters/himself65-way/assets/143391866/507480d4-b370-4a30-bc3b-c73d3cc1b46e">
+
+> 很多人问我离职原因里 verbal mockery（嘲讽）具体是什么意思，正好是公开发言，这里就挂一下。
+> 我觉得呆在 AFFiNE 的确符合这些人的素质
+
+- ~~https://twitter.com/himself_65/status/1718621436846174619~~ (deleted)
+
+---
+
+<img width="308" alt="image" src="https://github.com/troll-busters/himself65-way/assets/143391866/e9e9c2ee-d3a8-4f29-9cf9-42736fcfdd33">
+
+> 我要从AFFiNE离职了
+
+- https://twitter.com/himself_65/status/1716524537498534275
 
 ## 叉叉篇
 
@@ -29,12 +50,16 @@ PR welcome
 - https://twitter.com/himself_65/status/1721077007214063749
 - https://web.archive.org/web/20231107111027/https://twitter.com/himself_65/status/1721077007214063749
 
+---
+
 > 你英语比我好 什么时候嘴对嘴教我
 
 <img width="304" alt="image" src="https://github.com/troll-busters/himself65-way/assets/143391866/12935b15-e3c6-4ed0-b1c5-359d7e29828c">
 
 - https://twitter.com/himself_65/status/1716761590018580790
 - https://web.archive.org/web/20231107111401/https://twitter.com/himself_65/status/1716761590018580790
+
+---
 
 > 突然觉得叉叉说话声音越来越甜了，好听
 
