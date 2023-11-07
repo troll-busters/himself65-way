@@ -2,6 +2,14 @@
 
 PR welcome
 
+## 麦当劳篇
+
+![mcdonald's](https://github.com/troll-busters/himself65-way/assets/14026360/f73a96d6-3518-4099-bfae-4e83332099e5)
+
+> 麦当劳可乐沙冰绝对是第二好喝的东西了
+
+- https://twitter.com/himself_65/status/1654669861069418496
+
 ## 技术篇
 
 <img width="589" alt="image" src="https://github.com/troll-busters/himself65-way/assets/143391866/418675a1-626a-45d3-8e66-7d7b76127886">
