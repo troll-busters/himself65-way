@@ -4,10 +4,17 @@ PR welcome
 
 ## 技术篇
 
+<img width="584" alt="image" src="https://github.com/troll-busters/himself65-way/assets/150296291/b42fc937-6095-4028-b40a-b091628f6a08">
+
+> 所以我很多年前就决定公开社交媒体谈论编程绝对不用中文……不然每天都能见到逆天言论
+
+- https://twitter.com/himself_65/status/1722548368524579012
+- https://web.archive.org/web/20231109194157/https://twitter.com/himself_65/status/1722548368524579012
+
 ### 大侦探福尔摩包
 
-<img height="400" alt="image" src="https://github.com/troll-busters/himself65-way/assets/9910706/a900fe08-7d6d-4206-aa5b-6390d18a0d3b">
-<img height="400" alt="image" src="https://github.com/troll-busters/himself65-way/assets/9910706/a8e5c3be-75cc-42d5-9c7f-2258c3d6ef28">
+<img width="650" alt="image" src="https://github.com/troll-busters/himself65-way/assets/9910706/a900fe08-7d6d-4206-aa5b-6390d18a0d3b">
+<img width="250" alt="image" src="https://github.com/troll-busters/himself65-way/assets/9910706/a8e5c3be-75cc-42d5-9c7f-2258c3d6ef28">
 
 > （节选）
 > 
