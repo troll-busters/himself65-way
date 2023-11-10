@@ -117,6 +117,16 @@ PR welcome
 
 - https://twitter.com/himself_65/status/1716524537498534275
 
+## 生活篇
+
+### 北美小留
+
+<img width="443" alt="image" src="https://github.com/troll-busters/himself65-way/assets/150296291/565d6e58-7d30-4e43-a9cf-7075d9e43876">
+
+> 尝试在面试中说一个宾语从句，结果失败了，结结巴巴的
+
+- https://twitter.com/himself_65/status/1722723223236686149
+
 ## 叉叉篇
 
 <img width="278" alt="image" src="https://github.com/troll-busters/himself65-way/assets/9910706/d8975157-d5dd-485f-8f48-0b2bbd2683a5">
