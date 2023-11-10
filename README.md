@@ -11,6 +11,15 @@ PR welcome
 - https://twitter.com/himself_65/status/1722548368524579012
 - https://web.archive.org/web/20231109194157/https://twitter.com/himself_65/status/1722548368524579012
 
+---
+
+<img width="342" alt="image" src="https://github.com/troll-busters/himself65-way/assets/9910706/25537c73-039b-4c87-bd73-28d6c84a4b7c">
+
+> 前端果然是娱乐圈，所以咱都不发技术的
+
+- https://twitter.com/himself_65/status/1673520440453595136
+- https://web.archive.org/web/20231110014439/https://twitter.com/himself_65/status/1673520440453595136
+
 ### 大侦探福尔摩包
 
 <img width="650" alt="image" src="https://github.com/troll-busters/himself65-way/assets/9910706/a900fe08-7d6d-4206-aa5b-6390d18a0d3b">
