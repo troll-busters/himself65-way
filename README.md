@@ -129,6 +129,14 @@ PR welcome
 
 ## 叉叉篇
 
+<img width="447" alt="image" src="https://github.com/troll-busters/himself65-way/assets/150296291/475e48cd-2a21-4841-a2c2-cc43a2b15281">
+
+> 啊对对对我无理取闹，高贵的面包大人推特日理万机，你被冒犯了得不到道歉那你就忍着吧，你闹了那就是你的错了。
+
+- (deleted)
+
+---
+
 <img width="278" alt="image" src="https://github.com/troll-busters/himself65-way/assets/9910706/d8975157-d5dd-485f-8f48-0b2bbd2683a5">
 
 > 叉叉生气了
