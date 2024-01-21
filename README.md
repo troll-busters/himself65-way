@@ -129,6 +129,31 @@ PR welcome
 
 ## 叉叉篇
 
+<img width="593" alt="image" src="https://github.com/troll-busters/himself65-way/assets/3109144/b7c732dd-8fe2-4a1b-aedd-e955aeaf5793">
+
+> 所以这个号过期了，各位看官散了吧 <br>
+> 我觉得人应该记住所有东西都是会过期的 <br>
+> 被伤害了，很难过 <br>
+> 我劝有的人别太崇拜别人，崇拜会影响你完整地认识一个人，等同于加了十层滤镜，把他的缺陷都掩盖了。 <br>
+> 人是经不起仰望的，哪有真正文成武德又仁义英明的 <br>
+
+- https://twitter.com/x_kiyoi/status/1748390844376154155
+- https://twitter.com/x_kiyoi/status/1748335546387296535
+- https://twitter.com/x_kiyoi/status/1748038785143836986
+- https://twitter.com/x_kiyoi/status/1747131982159716406
+
+<img width="593" alt="Screenshot 2024-01-22 at 00 59 46" src="https://github.com/troll-busters/himself65-way/assets/3109144/376ba6f0-40de-4b84-a44f-95853b8ce3a5">
+
+> 当然要告诉大家我单身可撩🥰
+
+- https://twitter.com/x_kiyoi/status/1748390488259101116
+
+<img width="595" alt="Screenshot 2024-01-22 at 01 05 22" src="https://github.com/troll-busters/himself65-way/assets/3109144/3f968bc2-b0b1-4e93-81a0-f0b2ae70702f">
+
+> 雀食，面包保质期很短
+
+- https://twitter.com/localhost_4173/status/1748339634814271619 
+
 <img width="447" alt="image" src="https://github.com/troll-busters/himself65-way/assets/150296291/475e48cd-2a21-4841-a2c2-cc43a2b15281">
 
 > 啊对对对我无理取闹，高贵的面包大人推特日理万机，你被冒犯了得不到道歉那你就忍着吧，你闹了那就是你的错了。
